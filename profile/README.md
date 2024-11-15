@@ -104,8 +104,3 @@ No, the mod is currently only available for Android devices.
 
 Get the full Stick War Legacy experience with the modded APK. Unlock unlimited resources, command massive armies, and customize your warriors. Click the link below to start your download:  
 
-[**Download Stick War Legacy Mod APK with Mod Menu and 9999 Army APK Unlimited Money**](#)  
-
----  
-
-Let me know if you'd like further tweaks or additions!  
